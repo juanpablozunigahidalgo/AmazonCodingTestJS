@@ -3,13 +3,12 @@ Makes no sense to make a coding test nowadays with AI technology we have such as
 measure creativity and also, some people is just not as fast.Why a test? To meet a human-resource manager , usually a person who does not 
 care a damm about you as a person, to make sure "you are an acceptable human". What a crap. 
 
-
 Here is the stupidity about tests for a job. "You are good or bad since you dont make a test" such a bullshit crap honestly. 
 forest gump said you are stupid as you do. Hence HR managers with tests , they can classify themselves with this. 
 
+So friends and sisters. Here are the questions and the solution. To fight against tests that make no sense. 
 
-Any way. Here are the two problem(s) Statemens.
-
+Here are the two problem(s) Statemens.
 Notice. the solution is attached in the File with problem 1 and problem 2 accordingly.
 
 Problem [1]
